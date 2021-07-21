@@ -11,6 +11,5 @@ have been ignored over the years.
 I'm not here to correct them, rather to provide improved versions of conducting and
 presenting such items in a self-describing fashion.
 
-Reach me on gnunjuguna@gmail.com
+Reach me on gnunjuguna@gmail.com, or here.
 
-You can reach me
